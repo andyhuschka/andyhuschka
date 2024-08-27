@@ -1,5 +1,6 @@
 # Hey it's me - Andy
 
-Frontend Developer andy fulltime Nerd 🔥
+Frontend Developer and fulltime Nerd 🔥
+
 Loves Coffee and Computergames ☕️💻
 
