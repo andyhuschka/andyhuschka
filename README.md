@@ -2,5 +2,5 @@
 
 Frontend Developer and fulltime Nerd 🔥
 
-Loves Coffee ☕️ and Computergames 💻
+Love Coffee ☕️ and Computergames 💻
 
